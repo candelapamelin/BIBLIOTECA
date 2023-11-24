@@ -1,3 +1,3 @@
 # BIBLIOTECA 
 Pamelin Candela.
-Aberghinaq Natalia.
+Aberghina Natalia.
